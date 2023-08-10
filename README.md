@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ELizaPL
+- 👀 I’m interested in a lot
+- 🌱 I’m currently learning social media management
+- 📫 How to reach me: LemonMeringue on Discord
