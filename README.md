@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ELizaPL
-- 👀 I’m interested in a lot
-- 🌱 I’m currently learning Data Analytics
-- 📫 How to reach me: LemonMeringue on Discord
+- 👀 I’m interested in: Reading, Calisthenics, and Coffee
+- 🌱 I’m currently learning Data Science
+
